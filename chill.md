@@ -12,3 +12,7 @@
 - Löwenherz & Freed - We Love You - https://www.youtube.com/watch?v=aZ6C216xz6c (+++)
 - Freed - In your Armes - https://www.youtube.com/watch?v=57Kz_D1ixkw (+++)
 - Möwe - Blauer Tag (AirDice Remix) - https://www.youtube.com/watch?v=QILBrcNffmM (++++)
+
+# Playlists
+
+- Fefolet - https://www.youtube.com/playlist?list=PLRWXYupd_c18-VQg2ZnGDIdVNZka7w-ol
