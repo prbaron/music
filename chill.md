@@ -5,6 +5,7 @@
 - Majestic Casual - https://www.youtube.com/channel/UCXIyz409s7bNWVcM-vjfdVA
 - La belle musique - https://www.youtube.com/user/LaBelleChannel
 - ilovecassoulet - https://www.youtube.com/channel/UCc5HdeZnr74CqlTDpGwl6vQ
+- MrSuicideSheep - https://www.youtube.com/channel/UC5nc_ZtjKW1htCVZVRxlQAQ
 
 # Musics
 
