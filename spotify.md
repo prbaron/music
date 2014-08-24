@@ -7,6 +7,8 @@ http://open.spotify.com/user/abeatbowl/playlist/4viwsv4LhgKTax6lNUeBqG
 http://open.spotify.com/user/matezek/playlist/2YATnD1b9IOMKRSkE4tMxB
 
 ## Acoustic
+Deep focus : http://open.spotify.com/user/spotify/playlist/2ujjMpFriZ2nayLmrD1Jgl
+Intense Studying : http://open.spotify.com/user/spotify/playlist/0ExbFrTy6ypLj9YYNMTnmd
 
 ## DnB
 http://open.spotify.com/user/matezek/playlist/4Fp0s0Vb94k3jEfjpvy3Ry
